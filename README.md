@@ -1,3 +1,3 @@
 # Lusak.tech-Demo
-We'll update soon until that keep watching :)
+We'll update soon until that keep watching:)
 
